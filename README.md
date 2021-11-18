@@ -5,5 +5,4 @@
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: sandamalsagarage@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I'm an aerospace engineer
 -->
