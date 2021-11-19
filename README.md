@@ -6,4 +6,3 @@
 - 📫 How to reach me: sandamalsagarage@gmail.com
 - 😄 Pronouns: He/Him
 
-![image](https://github.com/saadeghi/saadeghi/blob/master/dino.gif)
